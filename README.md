@@ -1,4 +1,32 @@
 # Techie
+![image1](https://github.com/user-attachments/assets/95bf469a-7ac2-4726-83f5-b6254191a4bb)
+![image2](https://github.com/user-attachments/assets/f96b8923-a235-48c1-aa04-328787e9c968)
+![image3](https://github.com/user-attachments/assets/34896d77-ef99-46f7-bc6b-e39ea5303190)
+![image4](https://github.com/user-attachments/assets/a5dc047b-6bac-4b0a-9795-99651dd9f812)
+![image5](https://github.com/user-attachments/assets/a74178a4-98b4-4d6b-a683-2d0ccdbb8024)
+![image6](https://github.com/user-attachments/assets/3bd896fe-143c-41ba-8d20-6a95c7391173)
+![image7](https://github.com/user-attachments/assets/6789ed0f-e004-429c-978d-b32ab715387b)
+![image8](https://github.com/user-attachments/assets/bb077e63-7970-4353-904e-3236bea92cae)
+![image9](https://github.com/user-attachments/assets/4f9f79f4-2abb-4f16-aceb-e14f98604dd7)
+![image10](https://github.com/user-attachments/assets/12aa07ad-e541-4055-8c38-1fbb4c73644a)
+![image11](https://github.com/user-attachments/assets/44ccbb8d-4873-4b02-8866-d122d6f25aec)
+![image12](https://github.com/user-attachments/assets/7d840af8-1868-4c11-b52e-3944ab27c79b)
+![image13](https://github.com/user-attachments/assets/7836ef92-3f56-47fc-b966-cfca9b77dfdc)
+![image14](https://github.com/user-attachments/assets/acbd6dc6-fb75-4b19-8d7c-fa81f67c0300)
+![image15](https://github.com/user-attachments/assets/369a5577-8870-4ec7-b6c8-8e23cc140df4)
+![image16](https://github.com/user-attachments/assets/a6dc841a-9eb8-4d15-8b4f-6e78c44a335f)
+![image17](https://github.com/user-attachments/assets/7fcc61f6-d19c-4a64-8339-600d25dabd11)
+![image18](https://github.com/user-attachments/assets/b8c03390-e3a8-435b-a4ab-90e84ce1ee9c)
+![image19](https://github.com/user-attachments/assets/dfa22856-0efb-4a16-9293-45056e0b3641)
+![image20](https://github.com/user-attachments/assets/ddbdf68a-95c4-4e33-b479-d0acb19a25e3)
+![image21](https://github.com/user-attachments/assets/2dd340da-31e5-46e9-a925-149c5a866b87)
+![image22](https://github.com/user-attachments/assets/2add1c47-350d-4863-b9e3-796148546608)
+![image23](https://github.com/user-attachments/assets/8187597f-d382-4f26-a6e6-1e353834364c)
+![image24](https://github.com/user-attachments/assets/02be0522-2f5d-4f01-a3a3-bdf0fa862ec6)
+![image25](https://github.com/user-attachments/assets/cae5effc-9627-473f-95f2-fe19413a22ed)
+![image26](https://github.com/user-attachments/assets/2bbff5b5-ce4e-4e90-8cb5-68dbd9dd3009)
+![image27](https://github.com/user-attachments/assets/2e1a8294-2c4c-4ad3-b5c4-210621842776)
 
 
-[SmartSuite.md](https://github.com/user-attachments/files/18242392/SmartSuite.md)
+
+
